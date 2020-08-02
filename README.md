@@ -1,0 +1,2 @@
+# Qlik2learn--Shapes-the-Tomorrow
+This is a website which facilitates the finding of the right platform with all the facilities and have the smooth execution of the IT solutions. It is basically for all the students who are extremely passionate about the education as well as believes in more than just teaching which provides all the courses and new technology which uplift the career of the students.
